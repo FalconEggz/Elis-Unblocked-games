@@ -1,6 +1,6 @@
-# BLAZERGAMES
+# ElisGames
 
-*Subscribe to Blazer!!!*
+*Subscribe to FalconEggz!!!*
 https://youtube.com/c/blazerhm
 
 ## Deployment
